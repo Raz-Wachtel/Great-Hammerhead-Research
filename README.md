@@ -1,1 +1,1 @@
-# GHH-Study
+# Northwest Atlantic Great Hammerhead Shark Mercury Bioaccumulation Research
